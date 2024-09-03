@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Ashweeni
+- 👀 I’m interested in Learning
+- 🌱 I’m currently pursuing B.Tech in CE
